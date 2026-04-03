@@ -167,4 +167,4 @@ Yes, labels come in various sizes and formats.
 
 ## Get a Quote Today
 
-If you want to buy direct thermal labels, need wholesale direct thermal labels rolls, are searching for direct thermal labels near me, need **custom direct thermal label printing, or want to **buy direct thermal labels in Anaheim, contact us today for reliable labeling solutions.
+If you want to buy direct thermal labels, need wholesale direct thermal labels rolls, are searching for direct thermal labels near me, need custom direct thermal label printing, or want to buy direct thermal labels in Anaheim, contact us today for reliable labeling solutions.
